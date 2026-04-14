@@ -4,4 +4,6 @@
 
 ## https://www.ntnu.edu/now2/
 
+## https://samfunnskunnskap.no/nb/
+
 
